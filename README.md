@@ -1,0 +1,3 @@
+# People3 - The flipping portraits.
+
+We will be adding about 10 more portraits in the next day which might mean we have to resize things. But I can do that and give you the new settings...
